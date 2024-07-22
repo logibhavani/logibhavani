@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @logibhavani
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning frontend development
+- 💞️ I’m looking to collaborate with my team
+- 📫 How to reach me - bhavanibts7@gmail.com
+- 😄 Pronouns: She/her
+- ⚡ Fun fact: I'm a genius haha and I like Bangtan so much.....
